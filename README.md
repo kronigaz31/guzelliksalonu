@@ -1,2 +1,4 @@
 # kronigaz31.github.io
-güzellik salonu
+güzellik salonu web sitesi 
+
+instagramdan takip et kanks : yazilimogreniyom
